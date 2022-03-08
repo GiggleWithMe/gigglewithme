@@ -14,3 +14,15 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+Howdy,
+
+
+Pleased to meet you.
+
+I am an economics student based in Canberra, Australia.
+
+Please reach out.
+
+
+Cheers,
